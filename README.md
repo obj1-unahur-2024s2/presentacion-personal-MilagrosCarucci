@@ -10,7 +10,8 @@ A la vez siendo colaboradora en la materia Programación Estructurada.
 Mi motivación para comenzar a estudiar programación fue conocer y entender cómo funcionan las herramientas dentro de los programas que nosotros vemos por fuera.
 
 
-
-
 ## Mis gustos
 
+• Me gusta aprender cosas nuevas, es motivador aprender en vez de simplemente cursar.
+• Adoro leer e investigar sobre historia, principalmente las guerras mundiales y genocidios.
+• Me gustan los girasoles.
